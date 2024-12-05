@@ -2,7 +2,7 @@
 - 👀 I’m interested in game design, animation, and trans rights :3
 - 🌱 I’m currently learning the intermediates of programming and basic animation skills
 - 💞️ I’m looking to collaborate on various coding projects and to develop my skills in my interests
-- 📫 You can reach me through github or on my email @ryanalexanderjessop@gmail.com
+- 📫 You can reach me through github or on my email ryanalexanderjessop@gmail.com
 - 😄 Pronouns: IDK, use whatevs for now
 - ⚡ Fun fact: You're awesome >_<
 
